@@ -1,5 +1,10 @@
 </font> </font> ![EEC78C63-15CB-483B-89BD-B328BD147D0B](https://github.com/Cyadical/Cyadical/assets/127468822/dc75b4fb-4b45-4490-b1a1-434c2237c535)
 ![229CCD8E-19F8-4A32-8492-74CFA628E3AA](https://github.com/Cyadical/Cyadical/assets/127468822/db26e99c-5542-4e1a-a02e-cd9843ee1a9a)
+
+<p align="center">
+<a href="https://dragcave.net/view/EoNas"><img src="https://dragcave.net/image/EoNas.gif" style="border-width:0" alt="Adopt one today!"/></a> <a href="https://dragcave.net/view/uL6Zy"><img src="https://dragcave.net/image/uL6Zy.gif" style="border-width:0" alt="Adopt one today!"/></a> <a href="https://dragcave.net/view/NNaRm"><img src="https://dragcave.net/image/NNaRm.gif" style="border-width:0" alt="Adopt one today!"/></a> <a href="https://dragcave.net/view/mo0qn"><img src="https://dragcave.net/image/mo0qn.gif" style="border-width:0" alt="Adopt one today!"/></a>
+</p>
+
 <p align="center">
 <a href="https://cyadical.carrd.co/#kin"> <b> Cyan + Buster + Kin Names <b> </a>
 </p>
@@ -20,6 +25,14 @@ Nonhuman + Age Regressor
 <p align="center">
 <a href="https://linktr.ee/Cyadical"> My Socials </a>
 </p> 
+  
+  <p align="center">
+<a href="https://dragcave.net/view/EoNas"><img src="https://dragcave.net/image/EoNas.gif" style="border-width:0" alt="Adopt one today!"/></a> <a href="https://dragcave.net/view/uL6Zy"><img src="https://dragcave.net/image/uL6Zy.gif" style="border-width:0" alt="Adopt one today!"/></a> <a href="https://dragcave.net/view/NNaRm"><img src="https://dragcave.net/image/NNaRm.gif" style="border-width:0" alt="Adopt one today!"/></a> <a href="https://dragcave.net/view/mo0qn"><img src="https://dragcave.net/image/mo0qn.gif" style="border-width:0" alt="Adopt one today!"/></a>
+</p>
+
+<p align="center">
+<b> Would greatly appreciate if while you're here you'd click the eggs! I'm trying to grow dragons! <b>
+</p>
   
   ![5EBDEE9D-3F2E-4BAF-B07F-0AD9268BDEAB](https://github.com/Cyadical/Cyadical/assets/127468822/c6966b11-1564-4ef3-92cf-f68877f75f8b)
 

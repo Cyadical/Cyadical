@@ -2,10 +2,6 @@
 ![229CCD8E-19F8-4A32-8492-74CFA628E3AA](https://github.com/Cyadical/Cyadical/assets/127468822/db26e99c-5542-4e1a-a02e-cd9843ee1a9a)
 
 <p align="center">
-<a href="https://dragcave.net/view/EoNas"><img src="https://dragcave.net/image/EoNas.gif" style="border-width:0" alt="Adopt one today!"/></a> <a href="https://dragcave.net/view/uL6Zy"><img src="https://dragcave.net/image/uL6Zy.gif" style="border-width:0" alt="Adopt one today!"/></a> <a href="https://dragcave.net/view/NNaRm"><img src="https://dragcave.net/image/NNaRm.gif" style="border-width:0" alt="Adopt one today!"/></a> <a href="https://dragcave.net/view/mo0qn"><img src="https://dragcave.net/image/mo0qn.gif" style="border-width:0" alt="Adopt one today!"/></a>
-</p>
-
-<p align="center">
 <a href="https://cyadical.carrd.co/#kin"> <b> Cyan + Buster + Kin Names <b> </a>
 </p>
 <p align="center">

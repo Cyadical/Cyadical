@@ -1,5 +1,6 @@
-</font> </font> ![EEC78C63-15CB-483B-89BD-B328BD147D0B](https://github.com/Cyadical/Cyadical/assets/127468822/dc75b4fb-4b45-4490-b1a1-434c2237c535)
-![229CCD8E-19F8-4A32-8492-74CFA628E3AA](https://github.com/Cyadical/Cyadical/assets/127468822/db26e99c-5542-4e1a-a02e-cd9843ee1a9a)
+</font> </font>
+![A009AAB1-1618-47B4-AB91-7B2743B76690](https://github.com/Cyadical/Cyadical/assets/127468822/7f422368-33cf-4369-9cab-ccefaaf327ba)
+
 
 <p align="center">
 <a href="https://cyadical.carrd.co/#kin"> <b> Cyan + Buster + Kin Names <b> </a>
@@ -21,21 +22,24 @@ Nonhuman + Age Regressor
 <p align="center">
 <a href="https://linktr.ee/Cyadical"> My Socials </a>
 </p> 
-  
-  ![5EBDEE9D-3F2E-4BAF-B07F-0AD9268BDEAB](https://github.com/Cyadical/Cyadical/assets/127468822/c6966b11-1564-4ef3-92cf-f68877f75f8b)
+
+
+![3D0F477F-7D5C-4774-A054-9CC9289B4D93](https://github.com/Cyadical/Cyadical/assets/127468822/59d9837c-0ec7-44e9-bb6a-f8c9cf1a8e3b)
+
+
+<p align="center">
+<ins>WOULD LOVE TO MEET</ins>
+</p>
 
 <p align="center">
 <b> - Fan Of Cartoons <b>
 </p>
 <p align="center">
 <b> - Plush / Toy Collectors <b>
-</p>  
-  <p align="center">
-<b> - Animashers / Video Editors <b>
-</p> 
 <p align="center">
-<b> - Age / Pet Regressors <b>
-</p> 
+<b> - Animashers / Video Editors <b>
+<p align="center">
+<b> - Age / Pet Regressors <b> 
 <p align="center">
 <b> - Alterhumans <b>
 </p>  
@@ -45,3 +49,4 @@ Nonhuman + Age Regressor
 <p align="center">
 <b> Anyone is free to interact with me of course besides the obvious types of folks, I’d just love to talk to those who share my interest or something in common with me so we can talk about it! I do have many friends who have nothing in common with me though so don't let that stop you! <b>
 </p>
+

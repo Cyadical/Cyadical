@@ -9,7 +9,7 @@
 <a href="https://pronouns.cc/@Cyadical"> He / It / The Dragon / The Dog / The Bird + More </a>
 </p>
 <p align="center">
-18 Year Old Autistic Vegetarian Pacifist
+19 Year Old Autistic Vegetarian Pacifist
 </p>
 <p align="center">
 <a href="https://cyancommissions.carrd.co/"> Video Editor + Artist Open For Commissions</a>

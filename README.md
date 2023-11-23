@@ -6,14 +6,14 @@
 <img src="https://i.ibb.co/86x3VKr/7-FE3-DC78-A42-B-4-E3-F-AFEF-4284490-E1-C9-C.jpg"> <img src="https://i.ibb.co/Wv1C4By/68-B84-E8-A-EC38-4710-9109-4-D41971-CDFB7.jpg"> <img src="https://i.ibb.co/swjP2gd/641-DFE89-2080-44-F7-BC90-BBDCA3-CA12-DF.jpg"> <img src="https://i.ibb.co/dgdLPsn/8210-BCD9-75-B6-45-DE-87-CF-668-C5-DABCFEE.jpg">
 
 <p align="center">
-<a href="https://rentry.co/RedIsHeroic"> <b> Xavier + Kin Names <b> </a>
+<b> Xavier + Kin Names <b>
 </p>
 <p align="center">
 <a href="https://pronouns.cc/@Cyadical"> He / It / The Hero </a>
 </p>
-<p align="center">
+  <p align="center">
 19 Year Old Autistic Vegetarian Pacifist
-</p>
+    </p>
 <p align="center">
 <a href="https://cyadicalcommissions.carrd.co/"> Video Editor + Artist Open For Commissions</a>
 </p>
@@ -44,7 +44,7 @@ Nonhuman + Age Regressor
 <b> - Alterhumans (Not The "Kin For Fun" Kind) <b>
 </p>  
   <p align="center">
-<b> - Canon Cartoon Character Roleplayers (especially if you use tumblr) <b>
+<b> - Canon Cartoon Character Roleplayers <b>
 </p>
 <p align="center">
 <b> Anyone is free to interact with me of course besides the obvious types of folks, I’d just love to talk to those who share my interest or something in common with me so we can talk about it! I do have many friends who have nothing in common with me though so don't let that stop you! I love meeting new people! <b>

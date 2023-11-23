@@ -6,7 +6,7 @@
 <img src="https://i.ibb.co/86x3VKr/7-FE3-DC78-A42-B-4-E3-F-AFEF-4284490-E1-C9-C.jpg"> <img src="https://i.ibb.co/Wv1C4By/68-B84-E8-A-EC38-4710-9109-4-D41971-CDFB7.jpg"> <img src="https://i.ibb.co/swjP2gd/641-DFE89-2080-44-F7-BC90-BBDCA3-CA12-DF.jpg"> <img src="https://i.ibb.co/dgdLPsn/8210-BCD9-75-B6-45-DE-87-CF-668-C5-DABCFEE.jpg">
 
 <p align="center">
-<b> Xavier + Kin Names <b>
+<b> Xavier <b>
 </p>
 <p align="center">
 <a href="https://pronouns.cc/@Cyadical"> He / It / The Hero </a>

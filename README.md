@@ -9,21 +9,16 @@
 <b> Xavier <b>
 </p>
 <p align="center">
-<a href="https://pronouns.cc/@Cyadical"> He / It / The Hero </a>
-</p>
-  <p align="center">
-19 Year Old Autistic Vegetarian Pacifist
-    </p>
-<p align="center">
-<a href="https://cyadicalcommissions.carrd.co/"> Video Editor + Artist Open For Commissions</a>
+<a href="https://pronouns.cc/@Cyadical"> Any, I don't mind  </a>
 </p>
 <p align="center">
+<a href="[https://cyadicalcommissions.carrd.co/](https://cyadical.wixsite.com/cyadical)"> Video Editor + Artist Open For Commissions</a>
 </p>
 <p align="center">
 Nonhuman + Age Regressor
 </p>
 <p align="center">
-<a href="https://linktr.ee/Cyadical"> My Socials </a>
+<a href="[https://linktr.ee/Cyadical](https://allmylinks.com/cyadical)"> My Socials </a>
 </p> 
 <p align="center">
 <img src="https://i.ibb.co/gjB86Sh/1-A84525-B-BA42-44-E7-8-F8-F-F0-F565-F17633.gif" width="450">

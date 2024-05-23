@@ -12,36 +12,14 @@
 <a href="https://pronouns.cc/@Cyadical"> Any, I don't mind  </a>
 </p>
 <p align="center">
-<a href="[https://cyadicalcommissions.carrd.co/](https://cyadical.wixsite.com/cyadical)"> Video Editor + Artist Open For Commissions</a>
+<a href="https://cyadical.wixsite.com/cyadical"> Video Editor + Artist Open For Commissions</a>
 </p>
 <p align="center">
 Nonhuman + Age Regressor
 </p>
 <p align="center">
-<a href="[https://linktr.ee/Cyadical](https://allmylinks.com/cyadical)"> My Socials </a>
+<a href="https://allmylinks.com/cyadical"> My Socials </a>
 </p> 
 <p align="center">
 <img src="https://i.ibb.co/gjB86Sh/1-A84525-B-BA42-44-E7-8-F8-F-F0-F565-F17633.gif" width="450">
-<p align="center">
-<ins>WOULD LOVE TO MEET</ins>
-</p>
-
-<p align="center">
-<b> - Fan Of Cartoons <b>
-</p>
-<p align="center">
-<b> - Plush / Toy Collectors <b>
-<p align="center">
-<b> - Animashers / Video Editors <b>
-<p align="center">
-<b> - Age / Pet Regressors <b> 
-<p align="center">
-<b> - Alterhumans (Not The "Kin For Fun" Kind) <b>
-</p>  
-  <p align="center">
-<b> - Canon Cartoon Character Roleplayers <b>
-</p>
-<p align="center">
-<b> Anyone is free to interact with me of course besides the obvious types of folks, I’d just love to talk to those who share my interest or something in common with me so we can talk about it! I do have many friends who have nothing in common with me though so don't let that stop you! I love meeting new people! <b>
-</p>
 

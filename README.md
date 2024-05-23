@@ -21,5 +21,5 @@ Nonhuman + Age Regressor
 <a href="https://allmylinks.com/cyadical"> My Socials </a>
 </p> 
 <p align="center">
-<img src="https://i.ibb.co/gjB86Sh/1-A84525-B-BA42-44-E7-8-F8-F-F0-F565-F17633.gif" width="450">
+<img src="https://i.ibb.co/fttm7qx/B27-D6794-8-E61-4-A44-B43-B-60-C06-ED2-EAB4.gif" width="450">
 

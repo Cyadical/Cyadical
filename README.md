@@ -1,7 +1,8 @@
 </font> </font>
-<p align="center" style="font-size:30px">
+I am in <span style="font-family:Papyrus; font-size:4em;">LOVE!</span>
+<p align="center">
+  \Large\color{#f00}{\textsf{text}}
   CARNIVORE, CARNIVORE WON’T YOU COME DIGEST ME?
-</p>
   <p align="center">
 <img src="https://i.ibb.co/8nv5Y4vP/Dino.gif" width="650" height="200">
 

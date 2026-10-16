@@ -1,5 +1,8 @@
 </font> </font>
-<p align="center">
+<p align="center" style="font-size:30px">
+  CARNIVORE, CARNIVORE WON’T YOU COME DIGEST ME?
+</p>
+  <p align="center">
 <img src="https://i.ibb.co/8nv5Y4vP/Dino.gif" width="650" height="200">
 
 <p align="center" style="font-size:20px">
